@@ -2,7 +2,7 @@
 ### I am Rudrakshi :D and I am a student. 
 - I am simply a tech enthusiast and also have my interests in finance as well. 
 - You can connect with me on these below mentioned social media places :
-  -✨ [Twitter](https://twitter.com/synergeticcc)
+  - ✨ [Twitter](https://twitter.com/synergeticcc)
 
 - Want to interact with me on discord? Join the discord server's below and ping @synergeticc ^^
   - ✨ Discord server : [India Tech](https://discord.gg/indiatech)
